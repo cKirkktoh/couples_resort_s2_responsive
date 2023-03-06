@@ -1,0 +1,1 @@
+# couples_resort_s2_responsive
